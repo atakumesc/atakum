@@ -1,10 +1,10 @@
-# ✨ Samsun Escort - Atakum Escort – Kalite ve Güvenin Adresi 💎
+# 👑 Atakum Escort – Kalite ve Güvenin Adresi ✨
 
 **Tıkla İletişime Geç**: [WhatsApp üzerinden iletişime geçin](https://wa.me/905521609073)
 
 ## 🌟 Hakkımızda 💠
 
-**Samsun Atakum Escort**, özel anlarınızda yanınızda olacak, deneyimli ve seçkin partnerlerle hizmet veren prestijli bir platformdur. Samsun, Atakum ve çevresindeki bölgelerde 7/24 erişim, gizlilik ve müşteri memnuniyeti odaklı çalışıyoruz.
+**Atakum Escort**, özel anlarınızda yanınızda olacak, deneyimli ve seçkin partnerlerle hizmet veren prestijli bir platformdur. İlkadım, Atakum ve çevresindeki bölgelerde 7/24 erişim, gizlilik ve müşteri memnuniyeti odaklı çalışıyoruz.
 
 🔐 %100 gizlilik  
 💃 Profesyonel partnerler  
